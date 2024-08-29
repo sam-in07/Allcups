@@ -1,1 +1,1 @@
-# Allcups ojs contest solves ....................^_____^
+# Allcups ojs contest problme  solution ....................^_____^
